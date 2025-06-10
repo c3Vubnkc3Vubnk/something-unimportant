@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/b10d7581-0def-4bc5-ac60-03efa720be38)# something-unimportant（此账号为小号）
+# something-unimportant（此账号为小号）
 
 
 
