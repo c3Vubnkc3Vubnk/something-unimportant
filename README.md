@@ -1,4 +1,4 @@
-# something-unimportant（此账号为小号）
+![image](https://github.com/user-attachments/assets/b10d7581-0def-4bc5-ac60-03efa720be38)# something-unimportant（此账号为小号）
 
 
 
@@ -17,10 +17,12 @@
 
 *熟练阅读英文技术文档、官方API说明 
 
+。。。。。to be continued 
+
 ![98u888piCHSF](https://github.com/user-attachments/assets/82933262-fcbc-489f-a75e-d85332af9394)
 
 
 
 ![aaaa](https://github.com/user-attachments/assets/fdcf0a6a-27d8-4c70-82f3-3dd73349b975)
 
-to be continued 
+
