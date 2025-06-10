@@ -17,6 +17,7 @@
 
 *熟练阅读英文技术文档、官方API说明 
 
+![98u888piCHSF](https://github.com/user-attachments/assets/82933262-fcbc-489f-a75e-d85332af9394)
 
 
 to be continued 
