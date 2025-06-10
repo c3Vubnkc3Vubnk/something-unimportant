@@ -19,6 +19,7 @@
 
 ![98u888piCHSF](https://github.com/user-attachments/assets/82933262-fcbc-489f-a75e-d85332af9394)
 
-![v2-b16451c3d8d809338654ecfa8a95e2ec_1440w](https://github.com/user-attachments/assets/1deb9e1e-13f5-48ee-9cf4-2395900c31ef)
+![Uploading v2-b16451c3d8d809338654ecfa8a95e2ec_1440w.jpg…]()
+
 
 to be continued 
